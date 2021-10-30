@@ -3,4 +3,3 @@
 - 🌱 I’m currently learning a bunch of shit
 - 💞️ I’m looking to collaborate on deez nuts
 - 📫 How to reach me ... don't 
-Done
